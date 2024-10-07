@@ -1,0 +1,1 @@
+# rinspupatriya.github.io
